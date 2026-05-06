@@ -1,4 +1,4 @@
-
+premium dandy's world Scripts is the best dandy's world Script, featuring no cooldown and auto-upgrade. Safe and powerful for all your needs.
 
 
 
